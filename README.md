@@ -8,3 +8,4 @@ silahkan gunakan format beriku:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Amar Nuruddin, [Linkedin](www.linkedin.com/in/amarnrddn).
